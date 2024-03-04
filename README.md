@@ -5,9 +5,13 @@
 
 <p align="left"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=hltchj" alt="hltchj" /></a> </p>
 
-- 🌱 I’m currently learning **Generative AI, Computer Science**
+- 🌱 I’m currently learning **Generative AI, Machine Learning, any exciting technology...**
 
-- 📫 How to reach me **seutcj@seu.edu.cn**
+- 🔬 An undergraduate student of **Southeast University**
+
+- 🤟 Strive to **Super individual**
+
+- 📫 How to reach me **seutcj@seu.edu.cn** **+86 13522961669**
 
 - ⚡ Fun fact **Welcome everyone and make friend!**
 
