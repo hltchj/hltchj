@@ -9,9 +9,9 @@
 
 - 🔬 An undergraduate student of **Southeast University**
 
-- 🤟 Strive to **Super individual**
+- 🤟 Strive to become **Super individual**
 
-- 📫 How to reach me **seutcj@seu.edu.cn** **+86 13522961669**
+- 📫 How to reach me **seutcj@seu.edu.cn**, **+86 13522961669**
 
 - ⚡ Fun fact **Welcome everyone and make friend!**
 
